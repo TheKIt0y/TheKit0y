@@ -4,6 +4,6 @@
 
 *!!!! tt / td irl :3 !!! , cd / ct irl + pt !!!!!! X3*
 
-****dont ask me to help you with ur build ill js ignore u /hj****
+****dont ask me to help you with ur build limit ill js ignore u !!!! [ unless ur my bbg gamz , nicky ] !!!! /hj****
 
 RAH
