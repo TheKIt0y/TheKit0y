@@ -6,4 +6,8 @@
 
 ****i dont mind helping with build limit if needed ! [ plz whisp me tho ]****
 
+NO MATTER HOW CLOSE U ARE TO ME ASK PERMS TO VENT !!
+
+[ if i met u 3 hours ago pls dont vent to me ]
+
 RAH
