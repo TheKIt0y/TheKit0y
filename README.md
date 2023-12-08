@@ -2,6 +2,8 @@
 
 ***very gay ;P***
 
+**pls use mar , marz ONLY, anyone who calls me anything close to my irl name or anything else will be blocked**
+
 *!!!! tt / td irl :3 !!! , cd / ct irl + pt !!!!!! X3*
 
 ****i dont mind helping with build limit if needed ! [ plz whisp me tho ]****
