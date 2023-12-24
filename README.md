@@ -1,17 +1,23 @@
-<img src="https://i.postimg.cc/nh7YjRgW/cooltext447467014259492.gif" width="900" height="150"/>
+CD / CT, respect that. 
 
-***very gay ;P***
+****MINOR !!!****
 
-**pls use mar , marz ONLY, anyone who calls me anything close to my irl name or anything else will be blocked**
+dont mind helping with build limit if needed, [ sometimes im unable to ]
 
-*!!!! tt / td irl :3 !!! , cd / ct irl + pt !!!!!! X3*
+**happily taken by my gf <33**
 
-****i dont mind helping with build limit if needed ! [ plz whisp me tho ]****
+might be sv / nv when stressed
 
-NO MATTER HOW CLOSE U ARE TO ME ASK PERMS TO VENT !!
+i use all pronounse but if u need anymore information u can check my pronouns page, ; [ https://en.pronouns.page/@thekit0y ]
 
-[ if i met u 3 hours ago pls dont vent to me ]
+working on my own ponytown regiment and might be inactive
 
-RAH
+lesbian , agender , polyomorous [ questioning ]
 
-**blacklist** , - @stazzes , [ judged one of my friends way too fast and harrased them in public chat in ponytown, ignored me when playing with they're friends, said i'm "disrespectful" because i tend to call them by they're host name even tho i did tell them that i might forget to ask and might not know how to call them, lied saying i told people to unl!ve themselves in whispers which was a lie, always made me hang out with they're friends but never wanted to hang out with mine. extremly toxic and doesnt include that they're nto the only one with problems , told mulitple people in safe server to end themselves for stupid reason like having a pony that didnt fit they're style or sitting in they're fav spot.]
+my DNI , THIN ICE , INT list is in my pronouns page aswell,
+
+n$fw artists who draw minors stay TF away from me,
+
+whoever loves that weird dude who draws his 28 persona into amphibia and ships himself with anne, any1 who supporters him, **DNI.**
+
+**possible** autism and ADHD, [ no dignosed, ]
