@@ -20,4 +20,4 @@ n$fw artists who draw minors stay TF away from me,
 
 whoever loves that weird dude who draws his 28 persona into amphibia and ships himself with anne, any1 who supporters him, **DNI.**
 
-**possible** autism and ADHD, [ no dignosed, ]
+**possible** autism and ADHD, [ not dignosed, ]
